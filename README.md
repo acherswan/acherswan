@@ -7,6 +7,7 @@
 Mysteriously Niche.  C+H Friendly, come up to me whenever.
 
 <img src=https://files.catbox.moe/cu7tvm.png>
+<img src=https://files.catbox.moe/zm7fk0.png>
 
 Sign my ata for me to block KY0GEN
 ⠀⠀⠀⠀
