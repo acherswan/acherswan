@@ -4,16 +4,8 @@
   
   <a href=https://acheswan.atabook.org> Ata </a>
 
-Mysteriously Niche.  C+H Friendly, come up to me whenever.
-
-<img src=https://files.catbox.moe/cu7tvm.png>
-<img src=https://files.catbox.moe/zm7fk0.png>
-
-Sign my ata for me to block KY0GEN
-
-<img src=https://files.catbox.moe/ejmyt4.png>
-
-Can my friends not Be Weird? For a Day? this is So Freakihs.  Im Blocking you all Especially you Kyonphrenia
+<p align=center> <img src=https://files.catbox.moe/oow2g3.png> </p>
+<p align=center> for me to block <a href=https://github.com/KY0GEN> Morrigan </a> </p>
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
