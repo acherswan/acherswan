@@ -112,6 +112,13 @@
 
 
 
+
+
+
+
+
+###### <p align=center>  KAFKA HIT DA 67 </p>
+
 <p align=center> <img src=https://i.imgur.com/31f3IMq.gif> </p>
 
 
