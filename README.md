@@ -11,6 +11,9 @@
 
 <p align=center> read r͟e͟n͟t͟r͟y͟  byi </p>
 
+###### i gift skins to friends sometimes. 
+###### dats why u'll see another me or two 🤣 
+###### mostly only to mentioned @'s down dere
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
