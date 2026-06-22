@@ -6,7 +6,8 @@ Matt (owner of rentry) is a zionist. Use adblockers if ur ever going on rentry s
 ###### [atabook](https://acheswan.atabook.org) [rentry](https://rentry.co/express) [😳 my yume f/o](https://github.com/ky0gen)
 
 Rarely go on here wait for my comeback in december #YOOHOO
-
+whisper me and face the wrath of my 1000 farts in your face and probably no response
+lowest social battery ever
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
