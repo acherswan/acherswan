@@ -4,15 +4,9 @@
 Matt (owner of rentry) is a zionist. Use adblockers if ur ever going on rentry sites. Free Palestine 🍉
 
 ###### [atabook](https://acheswan.atabook.org) [rentry](https://rentry.co/express) [😳 my yume f/o](https://github.com/ky0gen)
-###### redoing this never kyaaa
-###### i dont reply to whsipers (well i do but rarely ok) sign my ata instead
-<img src=https://file.garden/Z25uzQbA8Ge0bdvU/Untitled146_20260502224333.png> 
 
-###### Like sure
+Rarely go on here wait for my comeback in december #YOOHOO
 
-<img src=https://files.catbox.moe/jownwu.webp> 
-
-###### tiktok music taste
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
