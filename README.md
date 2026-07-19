@@ -1,6 +1,7 @@
-[😳 my yume f/o](https://github.com/ky0gen)
+[😳 my yume f/o](https://github.com/ky0gen) Prolly dead ngl
+Friends preserve this github as your last memory of me arigato
 
-
+<img src="https://files.catbox.moe/3n32ag.png">
 ⠀⠀⠀⠀
 
 
