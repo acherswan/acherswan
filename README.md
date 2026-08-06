@@ -1,6 +1,7 @@
-[😳 my yume f/o](https://github.com/ky0gen) Prolly dead ngl
-Friends preserve this github as your last memory of me arigato
+[😳 gfiest](https://github.com/ky0gen) Prolly dead ngl
 
+Call me schizophrrenia the way i try to call my dead gf 💗💩
+I play to cope bye
 <img src="https://files.catbox.moe/3n32ag.png">
 ⠀⠀⠀⠀
 
