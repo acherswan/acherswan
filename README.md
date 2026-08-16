@@ -4,6 +4,7 @@ Call me schizophrrenia the way i try to call my dead gf 💗💩
 I play to cope bye
 <img src="https://files.catbox.moe/3n32ag.png">
 ⠀⠀⠀⠀
+<img src="https://files.catbox.moe/4arw31.png">
 
 
 ‎  ‎
