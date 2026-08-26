@@ -1,7 +1,4 @@
-[😳 gfiest](https://github.com/ky0gen) Prolly dead ngl
-
-Call me schizophrrenia the way i try to call my dead gf 💗💩
-I play to cope bye
+[😳 gfiest](https://github.com/ky0gen) Bye
 <img src="https://files.catbox.moe/3n32ag.png">
 ⠀⠀⠀⠀
 <img src="https://files.catbox.moe/4arw31.png">
