@@ -16,5 +16,6 @@
   </details>
   <details>
   <summary> read if regislut</summary>
-    thahnk you bro for making me look bad this is great yess call me a nazi one more time because i like to joke and have my own humor THIS GUY LITERALLY BLACKLISTED ME AND DECIDED "no ur werid as fuck dont even talk me" AND BLOCKS MY ASS WHAT THE FUK. yess call me a racist despite never having said anything discriminating any race AND be blasian myself GOOD FUCKNG BYE LFMAo. dude dont even try to believe what they are saying this guy blocked me beecause i tried to reason out and at least try to defend my name like actually. this drama is SO dumb and its like an underwhelming thing being thrown to become overwhelming. Anyways be mmore ableist towards me yess demonize me because im on cluster b yess. I have my friends writing out a defense doc so u can see how dumb theses bitches are being omg<br>
+    <img width="430" height="327" alt="image" src="https://github.com/user-attachments/assets/0a8a429e-98c6-46e9-bf35-7b6a031c33e9" />
+<br> this is what it feels
   </details>
