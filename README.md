@@ -19,5 +19,5 @@
   <details>
   <summary> read if regislut</summary>
     <img width="430" height="327" alt="image" src="https://github.com/user-attachments/assets/0a8a429e-98c6-46e9-bf35-7b6a031c33e9" />
-<br> this is what it feels
+<br> this is what it feels NEW: im not islamphobic i dont care about religion omg thats my ex STOP TRYING TO RUB DIRT ON ME UR ALL SO WEIRD
   </details>
