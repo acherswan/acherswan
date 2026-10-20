@@ -1,5 +1,8 @@
 # DM ME THE HOTTEST AND SEXIEST WAY TO END MY LIFE
 
+<img width="457" height="190" alt="image" src="https://github.com/user-attachments/assets/a99f4bba-97da-4550-bd2a-504841b7966f" />
+
+
 
 
   <table>
