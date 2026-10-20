@@ -13,7 +13,7 @@
   </table> 
 <details>
   <summary> friends & important info</summary>
-    kyo keo kye mae xin shig megz pickle seven magne ++ more people that i love so much thanks guys u are so moeee
+    kyo keo kye mae xin shig megz pickle seven magne @wifies github ++ more people that i love so much thanks guys u are so moeee
   
   i have aspd + bpd that affects me way more than you think so i only talk to people i trust thanks
   </details>
