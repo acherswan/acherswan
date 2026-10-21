@@ -8,21 +8,33 @@
   <table>
     <tr>
       <td>
-     mei     he  she  any
+     im mei or any name
  <br>
-    dni unless friend <br>
+    diagnosed as&bpd <br>
+        sociopath not edgy
+        <br>
+        read my shit below <br>
       </td>
     </tr>
   </table> 
 <details>
-  <summary> friends & important info</summary>
-    kyo keo kye mae xin shig megz pickle seven magne @wifies github ++ more people that i love so much thanks guys u are so moeee
+  <summary>  (⑉˙ᗜ˙⑉) </summary>
+    kyo is my bestest best best best twin brother he likes to dig into his butt and sniff out the feces making his asshole rough.
   
-  i have aspd + bpd that affects me way more than you think so i only talk to people i trust thanks
+  i also very very much appreciate my other friends that keep up with my shit~ im too lazy to link but u guys know who u r
+
+  i also appreciate my irls who come onto this game to help me troll on dis game i love u guys ♡ love is a strong word i hope you all die
   </details>
   <details>
-  <summary> read if regislut</summary>
-    not a nazi for joking about hitler micropenis not islamphobic for dating an islamphobe while doing nothing contributing to harrassing muslims not ableist because i can reclaim retard while being insanely retarded myself! hope that clears things up! much love!
+  <summary> read</summary>
+    if you're coming from a pt regiment blacklist just know that was a hate thing. im not joking they took shit out of context and tried to rub dirt on me for joking about hitler micropenis. idk what they have with me joking about micropenises but just know im not going into that territory since i probably angered about 90% of the pt micropenis community 😢
+    
+   i dont possess any sort of empathy nor do i feel any sort of sympathy. i do not appreciate people who "suspect" their disorders and self-diagnose. seek out professional help.
+    
+  i am an awful person, i am extremely unwell and in active therapy. i have my whispers off to avoid talking to people that i dont recognize 
+  
+  with all that said do not try to befriend me i will block you #GOODBYE #CALLMEANEDGELORD #DEGRADEKINK
+  
   </details>
 
 
