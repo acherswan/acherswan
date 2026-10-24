@@ -6,10 +6,10 @@
 
 
  <br>
-    chen or mei blasean eng/id/choppy cn he she <br>
+   <div align=center> chen or mei blasean eng/id/choppy cn he she <br> 
         diagnosed aspd & bpd sociopath i'm retarded 
         <br>
-        i really like harry potter + i have whispers off <br> 
+        i really like harry potter + i have whispers off <br> </div>
       </td>
     </tr>
   </table> 
