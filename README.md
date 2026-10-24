@@ -1,33 +1,22 @@
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/ac2383c6-e2aa-40de-94fe-0ec6ee8cd1fd" /> me
-
-
-  <table>
+<div align=center> 
+   <table>
     <tr>
       <td>
-     im mei or any name
+     <img width="330 height="260" alt="image" src="https://github.com/user-attachments/assets/5349d194-9939-43b2-a261-8dcad24648a9" />
+
+
  <br>
-    diagnosed as&bpd <br>
-        sociopath not edgy
+    chen or mei blasean eng/id/choppy cn he she <br>
+        diagnosed aspd & bpd sociopath i'm retarded 
         <br>
-        read my shit below <br>
+        i really like harry potter + i have whispers off <br> 
       </td>
     </tr>
   </table> 
+
+  
 <details>
-  <summary>  (⑉˙ᗜ˙⑉) </summary>
-    kyo is my bestest best best best twin brother he likes to dig into his butt and sniff out the feces making his asshole rough.
-  
-  i also very very much appreciate my other friends that keep up with my shit~ im too lazy to link but u guys know who u r
-
-  i also appreciate my irls who come onto this game to help me troll on dis game i love u guys ♡ love is a strong word i hope you all die
+  <summary> </summary>
+    kyo my best friend and my friendlist 
   </details>
-  <details>
-  <summary> stuff</summary>
-    talk to me about harry potter... im a gryffindor my patronus is a crow. hmu slytherins let's be drarry
-
-i dont entertain whispers i dont like talking to people outside my friendlist. i dont larp my disorders
-so i often act irrationally
-  
-  </details>
-
-
+</div>
