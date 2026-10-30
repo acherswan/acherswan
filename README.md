@@ -2,14 +2,17 @@
    <table>
     <tr>
       <td>
-     <img width="330 height="260" alt="image" src="https://github.com/user-attachments/assets/5349d194-9939-43b2-a261-8dcad24648a9" />
+         <div align=center>
+         smokin the fuck outta dat sactine w <a href="https://github.com/hyakuneko"> kyo </a> <br> </div>
+     <img width="340" height="300" alt="image" src="https://github.com/user-attachments/assets/ef3dd265-8fea-4bbc-a12a-4074f76d399f" />
+
 
 
  <br>
    <div align=center> chen or mei blasean eng/id/choppy cn he she <br> 
         diagnosed aspd & bpd sociopath i'm retarded 
         <br>
-        i really like harry potter + i have whispers off <br> </div>
+        i really like harry potter + only talk 2 close friends <br> </div>
       </td>
     </tr>
   </table> 
