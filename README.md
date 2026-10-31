@@ -1,3 +1,5 @@
+
+
 <div align=center> 
    <table>
     <tr>
@@ -20,6 +22,11 @@
   
 <details>
   <summary> </summary>
-    kyo my best friend and my friendlist 
+    naomi, kyo and my friendlist 
   </details>
 </div>
+
+
+
+https://github.com/user-attachments/assets/2ee0cc24-cf5a-4526-84fa-a70a9cdd3cd5
+
