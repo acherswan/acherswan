@@ -14,7 +14,8 @@
    <div align=center> chen or mei blasean eng/id/choppy cn he she <br> 
         diagnosed aspd & bpd sociopath i'm retarded 
         <br>
-        i really like harry potter + only talk 2 close friends <br> </div>
+        i really like harry potter + only talk 2 close friends <br> 
+   c+h is ok just avoid talking 2 me </div>
       </td>
     </tr>
   </table> 
