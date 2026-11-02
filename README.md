@@ -5,7 +5,7 @@
     <tr>
       <td>
          <div align=center>
-         smokin the fuck outta dat sactine w <a href="https://github.com/hyakuneko"> kyo </a> <br> </div>
+         view my gunslol https://guns.lol/arlecchino <br> </div>
      <img width="340" height="300" alt="image" src="https://github.com/user-attachments/assets/ef3dd265-8fea-4bbc-a12a-4074f76d399f" />
 
 
