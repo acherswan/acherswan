@@ -1,33 +1,7 @@
-im finna fork the FUCK outta yalls readme watch tf out 🤣
 
-<div align=center> 
-   <table>
-    <tr>
-      <td>
-         <div align=center>
-         view my gunslol https://guns.lol/arlecchino <br> </div>
-     <img width="340" height="300" alt="image" src="https://github.com/user-attachments/assets/ef3dd265-8fea-4bbc-a12a-4074f76d399f" />
+ill make this cute if i ever gaf abt pt again. hopefully in a 100 years where i'll be foreseeably dead in hopefully a week  
+im unwell and i only talk to close friends (naomi, kyo) with some exceptions if i feel a little social and stable (＾▽＾)  
+im well hated in the regiment community they all think im still a maniac which you can leave an impression on once ->  
+you see my fat beautiful plump ass that jiggles with every step i take ok? give my https://guns.lol/arlecchino views
 
-
-
- <br>
-   <div align=center> chen or mei blasean eng/id/choppy cn he she <br> 
-        diagnosed aspd & bpd sociopath i'm retarded 
-        <br>
-        i really like harry potter + only talk 2 close friends <br> 
-   c+h is ok just avoid talking 2 me </div>
-      </td>
-    </tr>
-  </table> 
-
-  
-<details>
-  <summary> </summary>
-    naomi, kyo and my friendlist 
-  </details>
-</div>
-
-
-
-https://github.com/user-attachments/assets/2ee0cc24-cf5a-4526-84fa-a70a9cdd3cd5
-
+c+h with me is ok just dont talk to me unless i initiate first otherwise ill just ignore you 
