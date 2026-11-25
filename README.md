@@ -1,5 +1,5 @@
-https://kuro.rip/naoi leave me a msg  
-ill rmk this & redo my kuro someday
+https://kuro.rip/naoi  
+my lazy ass kuro sign my msgbox doe
 <img width="851" height="157" alt="image" src="https://github.com/user-attachments/assets/1a24fee6-c72e-4663-84ef-22e7c36680d3" />
 
 <details>
